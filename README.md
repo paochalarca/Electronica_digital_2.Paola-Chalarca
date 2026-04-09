@@ -1,1 +1,2 @@
-# Electr-nica-digital-2---Paola-Chalarca-
+# Electronica-digital-2. 
+Paola-Chalarca-
